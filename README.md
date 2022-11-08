@@ -14,3 +14,4 @@ most celebrated and controversial leaders in history.[2][3]
 
 adding more text
 more useful information
+Agatha Christie, nacida Agatha Mary Clarissa Miller (Torquay, 15 de septiembre de 1890-Wallingford, 12 de enero de 1976), fue una escritora y dramaturga británica especializada en el género policial, por cuyo trabajo obtuvo reconocimiento a nivel internacional.1​ A lo largo de su carrera, publicó 66 novelas policiales, 6 novelas rosas y 14 cuentos —bajo el pseudónimo de Mary Westmacott—, además de incursionar como autora teatral en obras como La ratonera o Testigo de cargo.2​
